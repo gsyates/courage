@@ -1,3 +1,3 @@
 # courage
 Learning new, hard things takes courage
-especially when you are 51
+especially when you are...a bit older
